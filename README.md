@@ -230,7 +230,7 @@ Made with ❤️ by **Somil Jain**
 
 ---
 
-### 🎓 VIT University | 2026
+### 🎓 VIT University | 2028
 
 ### "Keep Coding, Keep Creating, Keep Innovating" 🚀
 
